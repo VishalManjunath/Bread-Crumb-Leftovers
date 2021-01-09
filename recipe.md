@@ -1,0 +1,1 @@
+Cut the crusts of the bread slices and cut them into pieces. Cut the cheese slices into smaller slices. Cut your chosen vegetables. Cook the ingredients in a in a pan and enjoy!
